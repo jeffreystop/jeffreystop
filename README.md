@@ -15,10 +15,10 @@
 
 ## Let's Connect!
 
-I'm always open to discussing new ideas, collaborations, or how technology can help you or your business.
+📫 : I'm always open to discussing new ideas, collaborations, or how technology can help you or your business.
 
 https://jeffreystop.com/
 
 ---
 
-Thanks for visiting my profile!
+😁 : Thanks for visiting my profile!
